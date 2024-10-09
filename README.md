@@ -23,7 +23,7 @@
 
 - Email: [pavithrajothi2002@gmail.com](mailto:pavithrajothi2002@gmail.com)
 - LinkedIn: [https://www.linkedin.com/in/pavithraj21/](https://www.linkedin.com/in/pavithraj21/)
-- 
+  
 ## 😄 Pronouns: she/her
 
 ## ⚡ Fun fact...
